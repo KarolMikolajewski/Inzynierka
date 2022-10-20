@@ -1,2 +1,2 @@
 # SEiRSPZ
-Inżynierka nasza :)
+2 osobowa praca Inżynierka :)
